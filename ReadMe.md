@@ -3,6 +3,7 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
+- peacekeeping is free, all clerical else is duress or trade of material,
 - medicine by non-biomedical CT scan or not, involuntary commitment and physical evidence, or no bail NOR jail, uppers are artifactually a non-matter for driving,
 - $30t dollars in debt is 1/3 total with mortgage and corporate, and the damages, in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
   - $829.5b/yr Medicare 19% "disabled" 44% investment bank welfare, makes progressives to be hypocrites per home/(income/hour), as well,
@@ -62,7 +63,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - protecting the economy is the priority at the moment, is a war crime, by prohibiting commerce of labor, cornering the market for prices 1y/0x,
 - the collapse and decline of GDP/p is tech advancement, which is economical,
 - vertical-, nor horizonal-, insurance saves cash flow by bundling or not; only concurrentable-, competitive- (labor-borne-demand), rollover is a collective-bargain,
-- Savers' land-deeds are 20% of the U.S.; 11/12 exploration/drilling rights by a [General Maintenance Unit](https://vaults.biz/gmu),
+- Savers' land-deeds are [20% of the U.S.](https://fred.stlouisfed.org/graph/?g=Mnnf); 11/12 exploration/drilling rights by a [General Maintenance Unit](https://vaults.biz/gmu),
   > permits by minimal viable product duress of quality, or **network/horizontal designation for "operational monopsony" target-margins**, by 12 industry variance,
 - Article 1.8 equal bond-tax means equal in receipt and scope,
 
