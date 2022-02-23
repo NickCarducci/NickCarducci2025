@@ -4,7 +4,7 @@ I am running for US Senate in (Truncated Production Tax) 2025 and I need your he
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
-- house-win fee is donee-beneficiary-surrendered-freedom of bid when the 'game' is life,
+- house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
 - education is trade secrets and gerontocracy-version trust-building, monopsony, rent-seeking science,
 - unknown velocity/yr\* currency is admittable as 44 years=m2/chequeing to payday current $170t/$88t/\$2t 'good-will' of branded-IP/collateral/land,
