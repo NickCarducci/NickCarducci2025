@@ -3,7 +3,8 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-- free at the point of contact is 1y/0x useless-elastic,
+- gentrification, anti-rent-seeking, privatization but with consumer surrogacy for regulations upon margins, duress and quality, by warn, tort and jail, without NHS monopsony
+  > free at the point of contact is 1y/0x useless-elastic,
 - torts aren't able to be by good-will neighborhood value, just your last-traded price for the home, or what you could get for it before the insurance life-bid surrendered-freedom of a third party donee-beneficiary, prize,
 - whistleblowers need to be jury, insurance don't show up for appointments is not the same as requiring that contractors do not surrender the freedoms of a third party donee beneficiary,
 - [$12k/64 debt/cash new per person a year](https://fred.stlouisfed.org/graph/?g=Mntl) means it is better to work for yourself (and your copy),
