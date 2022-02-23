@@ -15,9 +15,12 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   - torts aren't able to be by good-will neighborhood value, just your last-traded price for the home, or what you could get for it before the insurance life-bid surrendered-freedom of a third party donee-beneficiary, prize,
     - non-voters count as, "no-candidate," and holding-abstain for policy-making around a blind trust is an **income-damageable** conflict of interest,
     - all-psychosis diagnosis are **non-biomedical, nor-etymological**, -slander, or scapegoating with 'self-harm,' which is subjectively-so, for economical-failures of Generations born before 1988,
-  - whistleblowers need to be jury, insurance don't show up for appointments is not the same as requiring that contractors do not surrender the freedoms of a third party donee beneficiary,
+    - whistleblowers need to be jury, insurance don't show up for appointments is not the same as requiring that contractors do not surrender the freedoms of a third party donee beneficiary,
   - [$12k/64 debt/cash new per person a year](https://fred.stlouisfed.org/graph/?g=Mntl) means it is better to work for yourself (and your copy),
-  - licensure is a fee laborless, free actually, non-expiry duress beyond price [MUI](https://qr.ae/pGQ9ZW) discretion, not a false-bid-pool for no rollover collective bargain, waste and investment bank sleaze, unmet need because of laborless-demand on labor-borne-demand, by userers,
+  - licensure is a fee, -laborless, and actually-free, when:
+    - non-expiry duress beyond price [MUI](https://qr.ae/pGQ9ZW) discretion, not a:
+    - false-bid-pool for no rollover collective bargain, waste and investment bank sleaze, an unmet need because of: 
+    - laborless-demand on labor-borne-demand, by userers,
 - unknown velocity/yr\* currency is admittable as 44 years=m2/chequeing to payday current [$170t](https://www.yardeni.com/pub/monetagg.pdf)/$88t/\$2t 'good-will' of branded-IP/collateral/land,
    <img align="right" src="https://www.dl.dropboxusercontent.com/s/liftjgafrj1fv91/Screen%20Shot%202022-02-23%20at%201.14.51%20PM.png?dl=0" alt="Nick Carducci 2021"/>
 - successful appeals are fineable of judges,
