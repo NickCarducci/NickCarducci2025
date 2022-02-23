@@ -19,7 +19,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   - [$12k/64 debt/cash new per person a year](https://fred.stlouisfed.org/graph/?g=Mntl) means it is better to work for yourself (and your copy),
   - licensure is a fee, -laborless, and actually-free, when:
     - non-expiry duress beyond price [MUI](https://qr.ae/pGQ9ZW) discretion, not a:
-    - false-bid-pool for no rollover collective bargain, waste and investment bank sleaze, an unmet need because of: 
+    - **'false-bid-pool,' for no, rollover-, collective-bargain, is waste** and investment bank sleaze, an unmet need by damage-getting-problem because of: 
     - laborless-demand on labor-borne-demand, by userers,
 - unknown velocity/yr\* currency is admittable as 44 years=m2/chequeing to payday current [$170t](https://www.yardeni.com/pub/monetagg.pdf)/$88t/\$2t 'good-will' of branded-IP/collateral/land,
    <img align="right" src="https://www.dl.dropboxusercontent.com/s/liftjgafrj1fv91/Screen%20Shot%202022-02-23%20at%201.14.51%20PM.png?dl=0" alt="Nick Carducci 2021"/>
@@ -37,7 +37,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
     > price-/quality-/duress-controls [work](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14) **when Supply and Labor-Demand already do not already equate**, for 0y/1x "economic-welfare," or efficiency, gained trade by Supply and Labor-Demand Marginal Utility Indifference (MUI) as modal of both MRP and MC,
   - [home-contractor gentrification, homeless] scapegoating for mental-health slander or age-as-disability mal-juris-fides makes the government caste hypocrites for trust-breaking,
 - [16-19 employment is too low for equality](https://qr.ae/pGQnr0), babies are not to be chorers for gerontocracy, to be economical,
-- if you extrapolate the extrapolation, you are no more accurate in mean (e.g. n=2019-20),
+- if you extrapolate the extrapolation, you are **no more accurate in mean (e.g. n=2019-20)**,
 - processing-science is the palindrome of greenfield-blueocean,
 - -GDP/p tech advancement is the move,
 - you can get royalty before it becomes science,
@@ -102,7 +102,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
   - the real kind of socialism is not top-down, gentrification, but anti-rent-seeking,
 - convict intrantet authentication login.gov has been malfeasant and cause of [216/day missing children forever](https://www.fbi.gov/file-repository/2020-ncic-missing-person-and-unidentified-person-statistics.pdf/view) (FBI,2015), Motor Vehicle automatic-toll-NFC fee with photoID,
-- immunofluoresent microscopy D614G from ACE2 is **[yet to be seen](https://qr.ae/pGQKo2)**, and acute version of virial pnemonia, as [bacterial](https://www.pfizer.com/news/articles/viral_vs_bacterial_pneumonia_understanding_the_difference), is bivariate artifactual-cause, never in biology does a strain become the same by two paths of taxonomy,
+- immunofluoresent microscopy D614G from ACE2 is **[yet to be seen](https://qr.ae/pGQKo2)**, and **acute version of virial pnemonia, as [bacterial](https://www.pfizer.com/news/articles/viral_vs_bacterial_pneumonia_understanding_the_difference), is bivariate artifactual-cause, never in biology does a strain become the same by two paths of taxonomy**,
 - [Multiple Sclerosis is 2.5m, -presenting](https://qr.ae/pGQHb8), and 19% of population is not actually disabled, just a gerontocracy, investment-bank, monopsony and inefficient laborless-demand,
   > [no premature deaths happened](https://www.quora.com/What-could-we-do-to-be-adequately-prepared-for-a-future-new-pandemic/answer/Nick-Carducci), artifact Same artifact per capita as population mean, correlation does not mean causation. Single-year n=2019-20 is not able to suppose mean, to extrapolate an extrapolation is to be no closer to normalcy,
   > Alzheimer's and sewage, nor rotting meat, makes maggots - except well like water - chicken or egg doesn't matter.
