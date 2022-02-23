@@ -3,7 +3,7 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-- $30t dollars in debt is 1/3 total with mortgage and corporate, and the damages are in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
+- $30t dollars in debt is 1/3 total with mortgage and corporate, and the damages, in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
   - $829.5b/yr Medicare 19% "disabled" 44% investment bank welfare, makes progressives to be hypocrites per home/(income/hour), as well,
 
     > price-/quality-/duress-controls [work](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14) when Supply and Labor-Demand already do not already equate, for 0y/1x,
