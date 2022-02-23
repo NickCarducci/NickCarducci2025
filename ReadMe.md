@@ -36,7 +36,8 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - non-rollover-insurance is anti-competitive, known-hazards and defendant capacity is extent of warning, torts then jail,
 - animals can be saved with open ingredient licensure:
   - Transaction-fee-based security depositary receipt requires **NO prescription costs! known-hazard and warn, tort, jail**,
-    > flout immigration laws because it is good for productivity, parcels aren't comparable as to source of fentanyl-based heroine and marijuana dealers, whom customers know what they are getting into,
+
+    > flout [immigration](https://vaults.biz/immi) laws because it is good for productivity, [parcels](https://teapharmacy.party/drugs) aren't comparable as to source of fentanyl-based heroine and marijuana dealers, whom customers know what they are getting into,
 - 19% is not actually "disabled," just a scapegoat for homelessness and inability to save by usurer-finance (insurer, lender, landlord),
 - -GDP/p change-rate is tech advancement,
 - accrual is not reality, but cash accounting is,
