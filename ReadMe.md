@@ -3,6 +3,9 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
+- protecting the economy is the priority at the moment, is a war crime,
+- the collapse and decline of GDP/p is tech advancement, which is economical,
+- vertical- nor horizonal-insurance save cash flow by bundling or not, only concurrentable, competitive (labor-borne-demand), rollover is collective-bargain,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is donee-beneficiary-surrendered-freedom of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
