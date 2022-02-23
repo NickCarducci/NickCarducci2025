@@ -3,9 +3,13 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
+- force majeure is implausibly-deniably intended by the 'business'-cycle
+- unfunded liabilities asking-price is the impetus for asset-prices, not laborless-demand, for:
+  > GDP/p 1800-1913 0%/yr+ amongst 3%/yr+ population,
+- hypocrisy is grounds for inditement by comparative innocence,
 - protecting the economy is the priority at the moment, is a war crime,
 - the collapse and decline of GDP/p is tech advancement, which is economical,
-- vertical- nor horizonal-insurance save cash flow by bundling or not, only concurrentable, competitive (labor-borne-demand), rollover is collective-bargain,
+- vertical-, nor horizonal-, insurance saves cash flow by bundling or not; only concurrentable-, competitive- (labor-borne-demand), rollover is a collective-bargain,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is donee-beneficiary-surrendered-freedom of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
