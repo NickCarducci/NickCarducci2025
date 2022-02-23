@@ -3,15 +3,6 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-- GDP/yr is velocity* of m2 'good-will' is fraudulent as a fraction of chequeing-velocity/yr,
-  > donee-beneficiary-surrendered-freedom receprocation is not 'escalation,'
-- force majeure is implausibly-deniably intended by the 'business'-cycle,
-- unfunded liabilities asking-price is the impetus for asset-prices, not laborless-demand, for:
-  > GDP/p 1800-1913 0%/yr+ amongst 3%/yr+ population,
-- hypocrisy is grounds for inditement by comparative innocence,
-- protecting the economy is the priority at the moment, is a war crime,
-- the collapse and decline of GDP/p is tech advancement, which is economical,
-- vertical-, nor horizonal-, insurance saves cash flow by bundling or not; only concurrentable-, competitive- (labor-borne-demand), rollover is a collective-bargain,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is donee-beneficiary-surrendered-freedom of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
@@ -51,6 +42,15 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - poverty (inflation/labor) is equality, competition, and [1800-1913](https://vaults.biz/gdp) GDP/p 3%/yr+ population proves **people are economic for people**,
 - invoices are theft,
 - implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
+- GDP/yr is velocity* of m2 'good-will' is fraudulent as a fraction of chequeing-velocity/yr,
+  > donee-beneficiary-surrendered-freedom receprocation is not 'escalation,'
+- force majeure is implausibly-deniably intended by the 'business'-cycle,
+- unfunded liabilities asking-price is the impetus for asset-prices, not laborless-demand, for:
+  > GDP/p 1800-1913 0%/yr+ amongst 3%/yr+ population,
+- hypocrisy is grounds for inditement by comparative innocence,
+- protecting the economy is the priority at the moment, is a war crime,
+- the collapse and decline of GDP/p is tech advancement, which is economical,
+- vertical-, nor horizonal-, insurance saves cash flow by bundling or not; only concurrentable-, competitive- (labor-borne-demand), rollover is a collective-bargain,
 - Savers' land-deeds are 20% of the U.S.; 11/12 exploration/drilling rights by a [General Maintenance Unit](https://vaults.biz/gmu),
   > permits by minimal viable product duress of quality, or **network/horizontal designation for "operational monopsony" target-margins**, by 12 industry variance,
 - Article 1.8 equal bond-tax means equal in receipt and scope,
