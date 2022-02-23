@@ -3,18 +3,19 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-- gentrification, anti-rent-seeking, privatization but with consumer surrogacy for regulations upon margins, duress and quality, by warn, tort and jail, without NHS monopsony
-  > free at the point of contact is 1y/0x useless-elastic,
-- torts aren't able to be by good-will neighborhood value, just your last-traded price for the home, or what you could get for it before the insurance life-bid surrendered-freedom of a third party donee-beneficiary, prize,
-- whistleblowers need to be jury, insurance don't show up for appointments is not the same as requiring that contractors do not surrender the freedoms of a third party donee beneficiary,
-- [$12k/64 debt/cash new per person a year](https://fred.stlouisfed.org/graph/?g=Mntl) means it is better to work for yourself (and your copy),
-- licensure is a fee laborless, free actually, non-expiry duress beyond price [MUI](https://qr.ae/pGQ9ZW) discretion, not a false-bid-pool for no rollover collective bargain, waste and investment bank sleaze, unmet need because of laborless-demand on labor-borne-demand, by userers,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
 - education is trade secrets and gerontocracy-version trust-building, monopsony, rent-seeking science,
   - Teachers wish to teach into perpetuity, all jobs are to stop jobs, leisure is uncounted chores, favors, scientific contributions and copy,
   - [Kondratiev wave is the dejobification](https://qr.ae/pGQtJs) of jobs,
+  - gentrification, anti-rent-seeking, privatization but with consumer surrogacy for regulations upon margins, duress and quality, by warn, tort and jail, without NHS monopsony, **whom surrender to my hold that**,
+    - 'free at the point of contact' is 1y/0x useless-elastic, known duress, intentional repossession kept down payments laundered from a third party donee-beneficiary, loitered on collateral/bid and impossibility, and,
+    - waste comes from 'money' alone, not people perfecting a solution to a problem,
+  - torts aren't able to be by good-will neighborhood value, just your last-traded price for the home, or what you could get for it before the insurance life-bid surrendered-freedom of a third party donee-beneficiary, prize,
+  - whistleblowers need to be jury, insurance don't show up for appointments is not the same as requiring that contractors do not surrender the freedoms of a third party donee beneficiary,
+  - [$12k/64 debt/cash new per person a year](https://fred.stlouisfed.org/graph/?g=Mntl) means it is better to work for yourself (and your copy),
+  - licensure is a fee laborless, free actually, non-expiry duress beyond price [MUI](https://qr.ae/pGQ9ZW) discretion, not a false-bid-pool for no rollover collective bargain, waste and investment bank sleaze, unmet need because of laborless-demand on labor-borne-demand, by userers,
 - unknown velocity/yr\* currency is admittable as 44 years=m2/chequeing to payday current [$170t](https://www.yardeni.com/pub/monetagg.pdf)/$88t/\$2t 'good-will' of branded-IP/collateral/land,
    <img align="right" src="https://www.dl.dropboxusercontent.com/s/liftjgafrj1fv91/Screen%20Shot%202022-02-23%20at%201.14.51%20PM.png?dl=0" alt="Nick Carducci 2021"/>
 - successful appeals are fineable of judges,
