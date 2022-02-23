@@ -3,7 +3,7 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-We will do this again tomoorrow," we are almost done.
+"What will you do to keep reputations of those that they walked in there with.  We will do this again tomorrow," we are almost done.
 
 #### plussing up is monopsony, [trust-breaking hypocrisy](https://qr.ae/pGQ9LT) - whistleblowers are the ones with new information, yet judges dismiss them and coast along tranching appeals out of exhaustion and deliberate obstructions of already delinquent 19% 'disabled' investment bank,
 
@@ -131,3 +131,4 @@ please petition [carducci.us/primary](carducci.us/primary) & I will write the Ef
 > Communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations;
 > vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]; after the real relation has long been made clear, why retrogress again?
 > The bourgeoisie gives nothing outright, but ... makes a bargain with the poor, saying: "If I spend this much upon benevolent institutions, I thereby purchase the right not to be troubled any further [...by you...] exposing your misery."
+
