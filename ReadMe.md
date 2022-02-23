@@ -3,14 +3,6 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-- peacekeeping is free, all clerical else is duress or trade of material,
-- medicine by non-biomedical CT scan or not, involuntary commitment and physical evidence, or no bail NOR jail, uppers are artifactually a non-matter for driving,
-- $30t dollars in debt is 1/3 total with mortgage and corporate, and the damages, in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
-  - $829.5b/yr Medicare 19% "disabled" 44% investment bank welfare, makes progressives to be hypocrites per home/(income/hour), as well,
-
-    > price-/quality-/duress-controls [work](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14) when Supply and Labor-Demand already do not already equate, for 0y/1x,
-  - [home-contractor gentrification, homeless] scapegoating for mental-health slander or age-as-disability mal-juris-fides makes the government caste hypocrites for trust-breaking,
-- [16-19 employment is too low for equality](https://qr.ae/pGQnr0), babies are not to be chorers for gerontocracy, to be economical,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
@@ -24,6 +16,15 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   - critiquing comparative innocence, or,
   - Tranquil and voluntary trade, duress within,
 - to decipher what is right and wrong is not business but 12 industry-variable jury,
+- critique- or harassment-desist, when doublespeak (by jail), or known-made-publicly-unknown, hazard,
+- peacekeeping is free, all-clerical, -else, is duress, or trade of material (pce, cpi, expenses) or assets (non-concurrentable, collateral, compound and general-income, [structures](https://froth.app) - commercial lease, unknown),
+- medicine by non-biomedical CT scan or not, involuntary commitment and physical evidence, or no bail NOR jail, [uppers](https://teapharmacy.party/drugs) are artifactually a non-matter for driving,
+- $30t dollars in debt is 1/3 total with mortgage and corporate, and the damages, in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
+  - $829.5b/yr Medicare 19% "disabled" 44% investment bank "[general revenue](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17)" welfare, makes progressives to be hypocrites per home/(income/hour), as well,
+
+    > price-/quality-/duress-controls [work](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14) **when Supply and Labor-Demand already do not already equate**, for 0y/1x "economic-welfare," or efficiency, gained trade by Supply and Labor-Demand Marginal Utility Indifference as modal of both MRP and MC,
+  - [home-contractor gentrification, homeless] scapegoating for mental-health slander or age-as-disability mal-juris-fides makes the government caste hypocrites for trust-breaking,
+- [16-19 employment is too low for equality](https://qr.ae/pGQnr0), babies are not to be chorers for gerontocracy, to be economical,
 - if you extrapolate the extrapolation, you are no more accurate in mean,
 - processing-science is the palindrome of greenfield-blueocean,
 - -GDP/p tech advancement is the move,
@@ -55,7 +56,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - invoices are theft,
 - implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
 - [GDP/yr](https://fred.stlouisfed.org/graph/?g=Mnex) is velocity\* of m2 'good-will' is fraudulent as a fraction of chequeing-velocity/yr,
-  > donee-beneficiary-surrendered-freedom receprocation is not 'escalation,'
+  > donee-beneficiary-surrendered-freedom receprocation is not 'escalation,' **livelihood**
 - force majeure is implausibly-deniably intended by the 'business'-cycle,
 - unfunded liabilities asking-price is the impetus for asset-prices, not laborless-demand, for:
   > GDP/p 1800-1913 0%/yr+ amongst 3%/yr+ population,
