@@ -3,8 +3,8 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-- $30t dollars in debt is 1/3 total with mortgage and corporate, and the damages are in the 1y/0x price, libertarians are hypocrites per GDP/hour-GDP/p,
-- $829.5b/yr Medicare 19% "disabled" 44% investment bank welfare makes progressives to be hypocrites per home/(income/hour), as well,
+- $30t dollars in debt is 1/3 total with mortgage and corporate, and the damages are in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
+- $829.5b/yr Medicare 19% "disabled" 44% investment bank welfare, makes progressives to be hypocrites per home/(income/hour), as well,
 - [16-19 employment is too low for equality](https://qr.ae/pGQnr0), babies are not to be chorers for gerontocracy, to be economical,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
