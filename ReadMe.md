@@ -12,7 +12,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   - Teachers wish to teach into perpetuity, all jobs are to stop jobs, leisure is uncounted chores, favors, scientific contributions and copy,
   - [Kondratiev wave is the dejobification](https://qr.ae/pGQtJs) of jobs,
   - gentrification, anti-rent-seeking, privatization but with consumer surrogacy for regulations upon margins, duress and quality, by warn, tort and jail, without NHS monopsony, **whom surrender to my hold that** (I'm the subject),
-    - 'free at the point of contact' is 1y/0x useless-elastic, known duress, intentional repossession kept down payments laundered from a third party donee-beneficiary, loitered on collateral/bid and impossibility, and,
+    - **'free at the point of contact' is 1y/0x useless-elastic**, and a known duress, intentional-repossession kept-, down-payments, laundered-, from a third-party, donee-beneficiary, loitered on collateral or potential-, 1y/0x price-notwithstanding-, bid, and impossibility, and,
     - waste comes from 'money' alone, not people perfecting a solution to a problem,
   - torts aren't able to be by good-will neighborhood value, just your last-traded price for the home, or what you could get for it before the insurance life-bid surrendered-freedom of a third party donee-beneficiary, prize,
     - non-voters count as, "no-candidate," and holding-abstain for policy-making around a blind trust is an **income-damageable** conflict of interest,
