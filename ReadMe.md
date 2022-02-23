@@ -3,10 +3,6 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-- GDP/p is not flourishing, economic sanctions for foreign absence of crime is a war-crime,
-- an attack position is an open carry position, not a closed carry position, for economic-sanctions, is NOT a war-crime,
-- the American Revolution is precedencial-grounds ([1775-1787](https://americaswarofindependence17751787.quora.com/)),
-- the real kind of socialism is not top-down, gentrification, but anti-rent-seeking,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
@@ -96,7 +92,15 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - Debt does not stop a further invasion, when taxation is equal, just monopsony for 1y/0x, free rider immutable contracts made mutable,
 
 - Tranquil and voluntary trade means 1/12 industry-vertical max-royalty, minimal-viable-product duress and KYC 2 week public review of executions and trades (Public review by geohash/mo to accounting software and Congress) washable-card number,
+
   > it does matter what they do, more than what we think they do,
+  - GDP/p is not flourishing, economic sanctions for foreign absence of crime is a war-crime,
+
+  - an attack position is an open carry position, not a closed carry position, for economic-sanctions, is NOT a war-crime,
+
+  - the American Revolution is precedencial-grounds ([1775-1787](https://americaswarofindependence17751787.quora.com/)),
+
+  - the real kind of socialism is not top-down, gentrification, but anti-rent-seeking,
 - convict intrantet authentication login.gov has been malfeasant and cause of [216/day missing children forever](https://www.fbi.gov/file-repository/2020-ncic-missing-person-and-unidentified-person-statistics.pdf/view) (FBI,2015), Motor Vehicle automatic-toll-NFC fee with photoID,
 - immunofluoresent microscopy D614G from ACE2 is **[yet to be seen](https://qr.ae/pGQKo2)**, and acute version of virial pnemonia, as [bacterial](https://www.pfizer.com/news/articles/viral_vs_bacterial_pneumonia_understanding_the_difference), is bivariate artifactual-cause, never in biology does a strain become the same by two paths of taxonomy,
 - [Multiple Sclerosis is 2.5m, -presenting](https://qr.ae/pGQHb8), and 19% of population is not actually disabled, just a gerontocracy, investment-bank, monopsony and inefficient laborless-demand,
