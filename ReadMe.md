@@ -8,7 +8,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
 - education is trade secrets and gerontocracy-version trust-building, monopsony, rent-seeking science,
   - Teachers wish to teach into perpetuity, all jobs are to stop jobs, leisure is uncounted chores, favors, scientific contributions and copy,
-    > Kondratiev wave is the dejobification of jobs,
+  - Kondratiev wave is the dejobification of jobs,
 - unknown velocity/yr\* currency is admittable as 44 years=m2/chequeing to payday current $170t/$88t/\$2t 'good-will' of branded-IP/collateral/land,
 - successful appeals are fineable of judges,
 - all torts are grounded by, either:
