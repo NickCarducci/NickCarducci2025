@@ -29,6 +29,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - 19% is not actually "disabled," just a scapegoat for homelessness and inability to save by usurer-finance (insurer, lender, landlord),
 - -GDP/p change-rate is tech advancement,
 - accrual is not reality, but cash accounting is,
+  <img align="right" src="https://www.dl.dropboxusercontent.com/s/c00w421499cjyy6/Screen%20Shot%202022-02-23%20at%2012.47.14%20PM.png?dl=0" alt="Newsmax: home prices up 18%/yr+"/>
 
   - **reverse amortize** capital loss deflation (cash/debt)\*income every year back,
   - [welfare investment bank 44%](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17), 56% still invoices,
@@ -44,7 +45,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - poverty (inflation/labor) is equality, competition, and [1800-1913](https://vaults.biz/gdp) GDP/p 3%/yr+ population proves **people are economic for people**,
 - invoices are theft,
 - implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
-- [GDP/yr](https://fred.stlouisfed.org/graph/?g=Mnex) is velocity* of m2 'good-will' is fraudulent as a fraction of chequeing-velocity/yr,
+- [GDP/yr](https://fred.stlouisfed.org/graph/?g=Mnex) is velocity\* of m2 'good-will' is fraudulent as a fraction of chequeing-velocity/yr,
   > donee-beneficiary-surrendered-freedom receprocation is not 'escalation,'
 - force majeure is implausibly-deniably intended by the 'business'-cycle,
 - unfunded liabilities asking-price is the impetus for asset-prices, not laborless-demand, for:
