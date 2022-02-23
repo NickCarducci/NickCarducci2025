@@ -4,7 +4,7 @@ I am running for US Senate in (Truncated Production Tax) 2025 and I need your he
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
 - whistleblowers need to be jury, insurance don't show up for appointments is not the same as requiring that contractors do not surrender the freedoms of a third party donee beneficiary,
-- $12k/64 debt/cash new per person a year means it is better to work for yourself (and your copy),
+- [$12k/64 debt/cash new per person a year](https://fred.stlouisfed.org/graph/?g=Mntl) means it is better to work for yourself (and your copy),
 - licensure is a fee laborless, free actually, non-expiry duress beyond price MUI discretion, not a false-bid-pool for no rollover collective bargain, waste and investment bank sleaze, unmet need because of laborless-demand on labor-borne-demand, by userers,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
