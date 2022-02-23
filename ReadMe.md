@@ -25,7 +25,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
     > price-/quality-/duress-controls [work](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14) **when Supply and Labor-Demand already do not already equate**, for 0y/1x "economic-welfare," or efficiency, gained trade by Supply and Labor-Demand Marginal Utility Indifference as modal of both MRP and MC,
   - [home-contractor gentrification, homeless] scapegoating for mental-health slander or age-as-disability mal-juris-fides makes the government caste hypocrites for trust-breaking,
 - [16-19 employment is too low for equality](https://qr.ae/pGQnr0), babies are not to be chorers for gerontocracy, to be economical,
-- if you extrapolate the extrapolation, you are no more accurate in mean,
+- if you extrapolate the extrapolation, you are no more accurate in mean (e.g. n=2019-20),
 - processing-science is the palindrome of greenfield-blueocean,
 - -GDP/p tech advancement is the move,
 - you can get royalty before it becomes science,
@@ -77,7 +77,9 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
 - Tranquil and voluntary trade means 1/12 industry-vertical max-royalty, minimal-viable-product duress and KYC 2 week public review of executions and trades (Public review by geohash/mo to accounting software and Congress) washable-card number,
   > it does matter what they do, more than what we think they do,
-- convict intrantet authentication login.gov has been malfeasant and cause of [216/day missing children forever](https://www.fbi.gov/file-repository/2020-ncic-missing-person-and-unidentified-person-statistics.pdf/view) (FBI,2015), Motor Vehicle automatic-toll-NFC fee with photoID.
+- convict intrantet authentication login.gov has been malfeasant and cause of [216/day missing children forever](https://www.fbi.gov/file-repository/2020-ncic-missing-person-and-unidentified-person-statistics.pdf/view) (FBI,2015), Motor Vehicle automatic-toll-NFC fee with photoID,
+- immunofluoresent microscopy D614G from ACE2 is **[yet to be seen](https://qr.ae/pGQKo2)**, and acute version of virial pnemonia, as [bacterial](https://www.pfizer.com/news/articles/viral_vs_bacterial_pneumonia_understanding_the_difference), is bivariate artifactual-cause, never in biology does a strain become the same by two paths of taxonomy,
+- [Multiple Sclerosis is 2.5m prevalent](https://qr.ae/pGQHb8) and 19% of population is not actually disabled, just a gerontocracy, investment-bank, monopsony and inefficient laborless-demand.
 
 please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
 
