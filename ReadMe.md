@@ -81,7 +81,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   > it does matter what they do, more than what we think they do,
 - convict intrantet authentication login.gov has been malfeasant and cause of [216/day missing children forever](https://www.fbi.gov/file-repository/2020-ncic-missing-person-and-unidentified-person-statistics.pdf/view) (FBI,2015), Motor Vehicle automatic-toll-NFC fee with photoID,
 - immunofluoresent microscopy D614G from ACE2 is **[yet to be seen](https://qr.ae/pGQKo2)**, and acute version of virial pnemonia, as [bacterial](https://www.pfizer.com/news/articles/viral_vs_bacterial_pneumonia_understanding_the_difference), is bivariate artifactual-cause, never in biology does a strain become the same by two paths of taxonomy,
-- [Multiple Sclerosis is 2.5m prevalent](https://qr.ae/pGQHb8) and 19% of population is not actually disabled, just a gerontocracy, investment-bank, monopsony and inefficient laborless-demand.
+- [Multiple Sclerosis is 2.5m, -presenting](https://qr.ae/pGQHb8), and 19% of population is not actually disabled, just a gerontocracy, investment-bank, monopsony and inefficient laborless-demand.
 
 please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
 
