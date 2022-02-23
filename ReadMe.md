@@ -3,6 +3,7 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
+- medicine by non-biomedical CT scan or not, involuntary commitment and physical evidence, or no bail NOR jail, uppers are artifactually a non-matter for driving,
 - $30t dollars in debt is 1/3 total with mortgage and corporate, and the damages, in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
   - $829.5b/yr Medicare 19% "disabled" 44% investment bank welfare, makes progressives to be hypocrites per home/(income/hour), as well,
 
