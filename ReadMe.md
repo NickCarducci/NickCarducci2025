@@ -19,7 +19,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - critique- or harassment-desist, when doublespeak (by jail), or known-made-publicly-unknown, hazard,
 - peacekeeping is free, all-clerical, -else, is duress, or trade of material (pce, cpi, expenses) or assets (non-concurrentable, collateral, compound and general-income, [structures](https://froth.app) - commercial lease, unknown),
 - medicine by non-biomedical CT scan or not, involuntary commitment and physical evidence, or no bail NOR jail, [uppers](https://teapharmacy.party/drugs) are artifactually a non-matter for driving,
-- $30t dollars in debt is 1/3 total with mortgage and corporate, and the damages, in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
+- [$30t dollars in debt is 1/3 total with mortgage and corporate](https://qr.ae/pGQtZ0), and the damages, in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
   - $829.5b/yr Medicare 19% "disabled" 44% investment bank "[general revenue](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17)" welfare, makes progressives to be hypocrites per home/(income/hour), as well,
 
     > price-/quality-/duress-controls [work](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14) **when Supply and Labor-Demand already do not already equate**, for 0y/1x "economic-welfare," or efficiency, gained trade by Supply and Labor-Demand Marginal Utility Indifference as modal of both MRP and MC,
