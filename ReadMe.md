@@ -3,6 +3,7 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
+- 16-19 employment is too low for equality, babies are not to be chorers for gerontocracy, to be economical,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
@@ -20,7 +21,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - -GDP/p tech advancement is the move,
 - you can get royalty before it becomes science,
 - copyable means licensable, for **scheduleable-concurrency**,
-- (income/hour)/home is efficiency is omnipotent,
+- **(income/hour)/home** is efficiency is omnipotent,
 - gentrification and monopsony is counterproductive,
 - [first-part-the-post](https://nextdoor.com/p/yJhWyXgPTdNG) is more of a winner than [bipartisan minorities](https://www.sfelections.org/results/20101102/data/d10.html?fbclid=IwAR2mqFoOdqmtD5cNykpyJIikfNqr1iUGZ-Xly3qVYSH2SyA71hqNzFTAu1c),
 - non-rollover-insurance is anti-competitive, known-hazards and defendant capacity is extent of warning, torts then jail,
@@ -34,7 +35,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   - **reverse amortize** capital loss deflation (cash/debt)\*income every year back,
   - [welfare investment bank 44%](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17), 56% still invoices,
 
-    > [Obamacare/price-controls are pennywise, -cheaper](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14), than ending insurance investment banks for a pound, of efficiency, [GDP/hour-GDP/p](https://fred.stlouisfed.org/graph/?g=LmzU), productivity, [(income/hour)home](https://fred.stlouisfed.org/graph/?g=M7mh), only because Supply already doesn't equate Labor-Demand, but for:
+    > [Obamacare/price-controls are pennywise, -cheaper](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14), than ending insurance investment banks for a pound, of efficiency, **[GDP/hour-GDP/p](https://fred.stlouisfed.org/graph/?g=LmzU)**, productivity, [(income/hour)home](https://fred.stlouisfed.org/graph/?g=M7mh), only because Supply already doesn't equate Labor-Demand, but for:
 
     - borrower defense (force-majeure intent)
     - donee beneficiary-surrendered-freedom
@@ -58,11 +59,12 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   > permits by minimal viable product duress of quality, or **network/horizontal designation for "operational monopsony" target-margins**, by 12 industry variance,
 - Article 1.8 equal bond-tax means equal in receipt and scope,
 
-  - exclusive Truncated Production Tax geohash/mo precinct-spoofable 3% under \$2k is:
+  - exclusive Truncated Production Tax **geohash/mo precinct-spoofable 3% under $2k** is:
 
     - not hypocritical state victimization and criminalization over the Public,
 
       > only ever Science, and 501c3 dissolving to the state is not tax deductible, neither are interest payments for [Adjusted Present Value](https://qr.ae/pGjS4s), per diem incarceration, nor homelessnesss-scapegoating usurer-finance (insurer, lender, landlord) for mental-aquity!,
+- Debt does not stop a further invasion, when taxation is equal, just monopsony for 1y/0x, free rider immutable contracts made mutable,
 
 - Tranquil and voluntary trade means 1/12 industry-vertical max-royalty, minimal-viable-product duress and KYC 2 week public review of executions and trades (Public review by geohash/mo to accounting software and Congress) washable-card number,
 - convict intrantet authentication login.gov has been malfeasant and cause of [216/day missing children forever](https://www.fbi.gov/file-repository/2020-ncic-missing-person-and-unidentified-person-statistics.pdf/view) (FBI,2015), Motor Vehicle automatic-toll-NFC fee with photoID.
