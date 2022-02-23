@@ -3,6 +3,8 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
+- the American Revolution is precedencial-grounds ([1775-1787](https://americaswarofindependence17751787.quora.com/)),
+- the real kind of socialism is not top-down, gentrification, but anti-rent-seeking,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
@@ -55,6 +57,8 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - accrual is not reality, but cash accounting is,
   <img align="right" src="https://www.dl.dropboxusercontent.com/s/c00w421499cjyy6/Screen%20Shot%202022-02-23%20at%2012.47.14%20PM.png?dl=0" alt="Newsmax: home prices up 18%/yr+"/>
 
+> experts say rent and homes are up so much because of debt,
+
   - **reverse amortize** capital loss deflation (cash/debt)\*income every year back,
   - [welfare investment bank 44%](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17), 56% still invoices,
 
@@ -66,7 +70,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   - assets:liabilities $0:$0,
     > efficient economies make nominal, but not actual, positive balances of trade (Froth.app, U.S. BEA),
 
-- poverty (inflation/labor) is equality, competition, and [1800-1913](https://vaults.biz/gdp) GDP/p 3%/yr+ population proves **people are economic for people**,
+- *poverty (inflation/labor) is equality, competition*, and [1800-1913](https://vaults.biz/gdp) 0%/yr+ GDP/p 3%/yr+ population proves **people are economic for people**,
 - invoices are theft,
 - implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
 - [GDP/yr](https://fred.stlouisfed.org/graph/?g=Mnex) is velocity\* of m2 'good-will' is fraudulent as a fraction of chequeing-velocity/yr,
