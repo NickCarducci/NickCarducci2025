@@ -168,6 +168,7 @@ class App extends React.Component {
         this.setState({ iosnoPhoto: true });
       }
     };
+    const space = " ";
     return (
       <div
         style={{
@@ -225,6 +226,59 @@ class App extends React.Component {
           or forseeable, or donee invoked surrendered freedom, liable
           contractor: redundant estimate hazard, false-bid-pool
           {/*'name-yoour-price'*/}.
+          <br />
+          <br />
+          Cash advance to TBT in spite
+          <br />
+          <br />
+          "What will you do to keep reputations of those that they walked in
+          there with. We will do this again tomorrow," we are almost done.
+          <h3>
+            #### plussing up is monopsony,{space}
+            <a href="https://qr.ae/pGQ9LT">trust-breaking hypocrisy</a> -
+            whistleblowers are the ones with new information, yet judges dismiss
+            them and coast along tranching appeals out of exhaustion and
+            deliberate obstructions of already delinquent 19% 'disabled'
+            investment bank,
+          </h3>
+          - scientific-funding from Congress ($2m) is 1y/0x elastic for free
+          rider mutables, even operational monopsony, that target-margin fixes
+          supply and demand dead-weight-box of economic-welfare, efficiency,
+          GDP/hour-GDP/p, and therefore competition for productivity,
+          (income/hour)/home,
+          <br />
+          - prohibiting travel in 17 years is unnecesary with login.gov and
+          independence from laborless-demand, of financial-userers: insurers,
+          landlords and lenders,
+          <br />
+          <br />
+          <div
+            style={{
+              borderLeft: "3px green solid"
+            }}
+          >
+            "At what level do we realize that an economic crisis is over?" Nick
+            Carducci,{" "}
+            <a href="https://thumbprint.us/videos">
+              Some credits International Law & Computer Science, Monmouth
+              University (2014)
+            </a>
+            : An economic crisis’ measures are currently upsidedown, in
+            hours-worked and GDP/p change-rate (per year), so it will end when
+            (income/hour)/home and GDP/hour-GDP/p is maximized, a Bookkeeper for
+            Household{" "}
+            <a href="https://www.yumpu.com/en/document/read/18596138/slave-narratives-library-of-congress/41">
+              Chores
+            </a>{" "}
+            are more in tune with reality than accrual-accounting,
+            <br />
+            <br />
+            Savers' land-exploration{space}&bull;{space}fine lower court judges
+            {space}
+            <a href="https://github.com/NickCarducci/NickCarducci">
+              upon successful appeals
+            </a>
+          </div>
         </div>
         <div
           style={{
@@ -253,6 +307,11 @@ class App extends React.Component {
           >
             humanharvest.info
           </a>
+          <a href="https://vaults.biz/sdr">
+            Putin is austerity's best customer
+          </a>
+          .<br />
+          <br />
           "Beleagured self-employed want relief from $12k/64 debt/cash
           impossible Hell. Hard left have acheived huge influence in our
           educational institutions (trust-built-redistribution) and basic facts
