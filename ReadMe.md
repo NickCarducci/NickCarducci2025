@@ -3,7 +3,7 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-- all-psychosis diagnosis are slander, or scapegoating with 'self-harm,' which is subjectively-so, for economical-failures of Generations born before 1988,
+- all-psychosis diagnosis are **non-biomedical, nor-etymological**, -slander, or scapegoating with 'self-harm,' which is subjectively-so, for economical-failures of Generations born before 1988,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
