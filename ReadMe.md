@@ -3,17 +3,6 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-Cash advance to TBT in spite
-
-"What will you do to keep reputations of those that they walked in there with.  We will do this again tomorrow," we are almost done.
-
-#### plussing up is monopsony, [trust-breaking hypocrisy](https://qr.ae/pGQ9LT) - whistleblowers are the ones with new information, yet judges dismiss them and coast along tranching appeals out of exhaustion and deliberate obstructions of already delinquent 19% 'disabled' investment bank,
-
-- scientific-funding from Congress ($2m) is 1y/0x elastic for free rider mutables, even operational monopsony, that target-margin fixes supply and demand dead-weight-box of economic-welfare, efficiency, GDP/hour-GDP/p, and therefore competition for productivity, (income/hour)/home,
-- prohibiting travel in 17 years is unnecesary with login.gov and independence from laborless-demand, of financial-userers: insurers, landlords and lenders,
-
-> "At what level do we realize that an economic crisis is over?" Nick Carducci, [**Some credits International Law & Computer Science, Monmouth University (2014)**](https://thumbprint.us/videos): An economic crisis’ measures are currently upsidedown, in hours-worked and GDP/p change-rate (per year), so it will end when (income/hour)/home and GDP/hour-GDP/p is maximized, a Bookkeeper for Household [Chores](https://www.yumpu.com/en/document/read/18596138/slave-narratives-library-of-congress/41) are more in tune with reality than accrual-accounting,
-
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
