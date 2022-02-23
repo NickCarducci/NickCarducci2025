@@ -3,6 +3,7 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
+- an attack position is an open carry position, not a closed carry position, for economic-sanctions, is NOT a war-crime,
 - the American Revolution is precedencial-grounds ([1775-1787](https://americaswarofindependence17751787.quora.com/)),
 - the real kind of socialism is not top-down, gentrification, but anti-rent-seeking,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
