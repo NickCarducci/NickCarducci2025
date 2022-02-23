@@ -2,6 +2,10 @@
 
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
+#### plussing up is monopsony, [trust-breaking hypocrisy](https://qr.ae/pGQ9LT) - whistleblowers are the ones with new information, yet judges dismiss them and coast along tranching appeals out of exhaustion and deliberate obstructions of already delinquent 19% disabled investment bank.
+
+
+> "At what level do we realize that an economic crisis is over?" Nick Carducci, [**Some credits International Law & Computer Science, Monmouth University (2014)**](https://thumbprint.us/videos): An economic crisis’ measures are currently upsidedown, in hours-worked and GDP/p change-rate (per year), so it will end when (income/hour)/home and GDP/hour-GDP/p is maximized.
 
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
