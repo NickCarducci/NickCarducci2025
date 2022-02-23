@@ -3,7 +3,6 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-- press sec is like a teacher, that will kill you, for energy,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
@@ -97,9 +96,11 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   > it does matter what they do, more than what we think they do,
   - GDP/p is not flourishing, economic sanctions for foreign absence of crime is a war-crime,
 
+    > press sec is like a teacher, that will kill you, for energy,
+
   - an attack position is an open carry position, not a closed carry position, for economic-sanctions, is NOT a war-crime,
 
-  - the American Revolution is precedencial-grounds ([1775-1787](https://americaswarofindependence17751787.quora.com/)),
+    > the American Revolution is precedencial-grounds ([1775-1787](https://americaswarofindependence17751787.quora.com/)),
 
   - the real kind of socialism is not top-down, gentrification, but anti-rent-seeking,
 - convict intrantet authentication login.gov has been malfeasant and cause of [216/day missing children forever](https://www.fbi.gov/file-repository/2020-ncic-missing-person-and-unidentified-person-statistics.pdf/view) (FBI,2015), Motor Vehicle automatic-toll-NFC fee with photoID,
