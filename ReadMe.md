@@ -3,7 +3,8 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-- force majeure is implausibly-deniably intended by the 'business'-cycle
+- donee-beneficiary-surrendered-freedom receprocation is not 'escalation,'
+- force majeure is implausibly-deniably intended by the 'business'-cycle,
 - unfunded liabilities asking-price is the impetus for asset-prices, not laborless-demand, for:
   > GDP/p 1800-1913 0%/yr+ amongst 3%/yr+ population,
 - hypocrisy is grounds for inditement by comparative innocence,
