@@ -3,7 +3,7 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-- 16-19 employment is too low for equality, babies are not to be chorers for gerontocracy, to be economical,
+- [16-19 employment is too low for equality](https://qr.ae/pGQnr0), babies are not to be chorers for gerontocracy, to be economical,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
