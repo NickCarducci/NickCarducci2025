@@ -25,7 +25,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - [$30t dollars in debt is 1/3 total with mortgage and corporate](https://qr.ae/pGQtZ0), and the damages, in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
   - $829.5b/yr Medicare 19% "disabled" 44% investment bank "[general revenue](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17)" welfare, makes progressives to be hypocrites per home/(income/hour), as well,
 
-    > price-/quality-/duress-controls [work](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14) **when Supply and Labor-Demand already do not already equate**, for 0y/1x "economic-welfare," or efficiency, gained trade by Supply and Labor-Demand Marginal Utility Indifference as modal of both MRP and MC,
+    > price-/quality-/duress-controls [work](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14) **when Supply and Labor-Demand already do not already equate**, for 0y/1x "economic-welfare," or efficiency, gained trade by Supply and Labor-Demand Marginal Utility Indifference (MUI) as modal of both MRP and MC,
   - [home-contractor gentrification, homeless] scapegoating for mental-health slander or age-as-disability mal-juris-fides makes the government caste hypocrites for trust-breaking,
 - [16-19 employment is too low for equality](https://qr.ae/pGQnr0), babies are not to be chorers for gerontocracy, to be economical,
 - if you extrapolate the extrapolation, you are no more accurate in mean (e.g. n=2019-20),
