@@ -24,6 +24,7 @@ class App extends React.Component {
       zip: "",
       scrollTop: 0
     };
+    this.primary = React.createRef();
     this.thumbprint = React.createRef();
     this.videos = React.createRef();
     for (let i = 0; i < 220; i++) {
@@ -148,10 +149,12 @@ class App extends React.Component {
       const check = () => {
         if (this.props.pathname === "/") {
           this.setState({ journal: true });
-        } else if (this.state.pathname === "/thumbprint") {
+        } else if (this.props.pathname === "/thumbprint") {
           window.scroll(0, this.thumbprint.current.offsetTop);
-        } else if (this.state.pathname === "/videos") {
+        } else if (this.props.pathname === "/videos") {
           window.scroll(0, this.videos.current.offsetTop);
+        } else if (this.props.pathname === "/primary") {
+          window.scroll(0, this.primary.current.offsetTop);
         }
       };
       check();
@@ -168,6 +171,7 @@ class App extends React.Component {
     return (
       <div
         style={{
+          position: "relative",
           overflow: "hidden",
           width: "100%",
           maxWidth: "600px",
@@ -3116,7 +3120,7 @@ class App extends React.Component {
             key="1433877605606952965"
             tweetId="1433877605606952965"
           />
-          <h2>Are you a New Jersey voter?</h2>
+          <h2 ref={this.primary}>Are you a New Jersey voter?</h2>
           <h2>Submit your signature! {this.state.signatures}/800</h2>
           {this.state.finished ? (
             <h2>Thank you!</h2>
