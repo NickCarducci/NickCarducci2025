@@ -3,6 +3,8 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
+Cash advance to TBT in spite
+
 "What will you do to keep reputations of those that they walked in there with.  We will do this again tomorrow," we are almost done.
 
 #### plussing up is monopsony, [trust-breaking hypocrisy](https://qr.ae/pGQ9LT) - whistleblowers are the ones with new information, yet judges dismiss them and coast along tranching appeals out of exhaustion and deliberate obstructions of already delinquent 19% 'disabled' investment bank,
@@ -15,6 +17,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
+  > And on elasticity 1y/0x, there is no way around it, you need to use economic welfare of GDP/hour-GDP/p to see how useless an elasticity of undefined really is, and that’s all ‘money,’ not chequeing land-deeds, does, as Supply equals Labor-Demand or supply doesn’t equal demand, and then price controls ARE pennywise cheaper than whatever laborless-demand is causing the quality of Marginal Utility Indifference opportunities, lost, 
 - education is trade secrets and gerontocracy-version trust-building, monopsony, rent-seeking science,
   - Teachers wish to teach into perpetuity, all jobs are to stop jobs, leisure is uncounted chores, favors, scientific contributions and copy,
   - [Kondratiev wave is the dejobification](https://qr.ae/pGQtJs) of jobs,
@@ -113,7 +116,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
   - the real kind of socialism is not top-down, gentrification, but anti-rent-seeking,
 - convict intrantet authentication login.gov has been malfeasant and cause of [216/day missing children forever](https://www.fbi.gov/file-repository/2020-ncic-missing-person-and-unidentified-person-statistics.pdf/view) (FBI,2015), Motor Vehicle automatic-toll-NFC fee with photoID,
-- immunofluoresent microscopy D614G from ACE2 is **[yet to be seen](https://qr.ae/pGQKo2)**, and **acute version of virial pnemonia, as [bacterial](https://www.pfizer.com/news/articles/viral_vs_bacterial_pneumonia_understanding_the_difference), is bivariate artifactual-cause, never in biology does a strain become the same by two paths of taxonomy**,
+- immunofluoresent microscopy D614G from ACE2 is **[yet to be seen](https://qr.ae/pGQKo2)**, and **acute version of virial pnemonia, as [bacterial](https://www.pfizer.com/news/articles/viral_vs_bacterial_pneumonia_understanding_the_difference), is bivariate artifactual-cause, never in biology does a strain become the same by two paths of taxonomy**, a more acute version of viral pneumonia cannot be another cause, bivariate cause is never, it is the same artifact per capita, half people have the sniffles and 1% die in any time series snapshot. CDC says sample of 2 years is significant from what mean, that isn’t enough to draw, if you can’t show immunofluorescence microscopy in a lab report without saying vitro but vivo, then you can’t say it is man-made, here are hundred of thousands of visions that exist, and we only discover those that we test for,
 - [Multiple Sclerosis is 2.5m, -presenting](https://qr.ae/pGQHb8), and 19% of population is not actually disabled, just a gerontocracy, investment-bank, monopsony and inefficient laborless-demand,
   > [no premature deaths happened](https://www.quora.com/What-could-we-do-to-be-adequately-prepared-for-a-future-new-pandemic/answer/Nick-Carducci), artifact Same artifact per capita as population mean, correlation does not mean causation. Single-year n=2019-20 is not able to suppose mean, to extrapolate an extrapolation is to be no closer to normalcy,
   > Alzheimer's and sewage, nor rotting meat, makes maggots - except well like water - chicken or egg doesn't matter.
@@ -131,4 +134,3 @@ please petition [carducci.us/primary](carducci.us/primary) & I will write the Ef
 > Communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations;
 > vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]; after the real relation has long been made clear, why retrogress again?
 > The bourgeoisie gives nothing outright, but ... makes a bargain with the poor, saying: "If I spend this much upon benevolent institutions, I thereby purchase the right not to be troubled any further [...by you...] exposing your misery."
-
