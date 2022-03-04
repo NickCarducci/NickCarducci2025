@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+(Royalty$/barrel), (tax%/SSA), (tax%/Medicare), (cash/debt)\*income, 19% mad and age scapegoat 1y/0x elasticity is a warcrime, hypocrisy trust-breaking; UBI laborless demand by financial-userers: implausible use landlord leases, loitering impossible, outright or surrendered bid lenders, nor false bid pool loss.
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
