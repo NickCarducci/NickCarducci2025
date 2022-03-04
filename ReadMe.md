@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 50 average age small business; funds are 1y/0x elastic (useless); 19% are not disabled, only .7% have actual disability, Multiple Sclerosis. Bacteria cannot be severe viral pneumonia. Covid is basis rate fallacy, in the baby boomer name, 1942. Poverty is average PCE/income, only skew can be suppressed. Price controls only work if supply already doesn't equal labor-demand (2024nj.com).
-(Royalty$/barrel), (tax%/SSA), (tax%/Medicare), (cash/debt)\*income, 19% mad and age scapegoat 1y/0x elasticity is a warcrime, hypocrisy trust-breaking; UBI laborless demand by financial-userers: implausible use landlord leases, loitering impossible, outright or surrendered bid lenders, nor false bid pool loss.
+(Royalty$/barrel), (tax%/SSA), (tax%/Medicare), (cash/debt)\*income, 19% mad and age scapegoat 1y/0x elasticity is a warcrime, hypocrisy trust-breaking; UBI laborless demand by financial-userers: implausible use landlord leases, loitering impossible, outright or surrendered bid lenders, nor false bid pool loss. More open jobs than people because school takes 16-19 from work.
 
 
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
