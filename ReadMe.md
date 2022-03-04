@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+19% are not disabled, only .7% have actual disability, Multiple Sclerosis. Bacteria cannot be severe viral pneumonia. Covid is basis rate fallacy, in the baby boomer name, 1942. Poverty is average PCE/income, only skew can be suppressed. Price controls only work if supply already doesn't equal labor-demand.
 (Royalty$/barrel), (tax%/SSA), (tax%/Medicare), (cash/debt)\*income, 19% mad and age scapegoat 1y/0x elasticity is a warcrime, hypocrisy trust-breaking; UBI laborless demand by financial-userers: implausible use landlord leases, loitering impossible, outright or surrendered bid lenders, nor false bid pool loss.
 
 
