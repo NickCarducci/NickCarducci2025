@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-In work tax benefit, all sorts of people get share-split of their own shares, royalty-able.
+In work tax benefit, all sorts of people get share-split of their own shares, royalty-able. Labor is one-part living costs, variable.
 
 Poverty is not a trap by welfare because it is an average of PCE/income, anyway. Money doesn't create jobs. Most people move on and off as their financiers need it, not them. Proper preventing commerce welfare by investment bank elasticity (useless); working for corporations contribute less than copy, and certainly favors-imputable; 40% debt spending is a tax-payer vacation, as well as hypocrisy-trust-building; 50 average age small business; funds are 1y/0x elastic (useless); 19% are not disabled, only .7% have actual disability, Multiple Sclerosis. Bacteria cannot be severe viral pneumonia. Covid is basis rate fallacy, in the baby boomer name, 1942. Poverty is average PCE/income, only skew can be suppressed. Price controls only work if supply already doesn't equal labor-demand (2024nj.com).
 (Royalty$/barrel), (tax%/SSA), (tax%/Medicare), (cash/debt)\*income, 19% mad and age scapegoat 1y/0x elasticity is a warcrime, hypocrisy trust-breaking; UBI laborless demand by financial-userers: implausible use landlord leases, loitering impossible, outright or surrendered bid lenders, nor false bid pool loss. More open jobs than people because school takes 16-19 from work.
